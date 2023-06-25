@@ -1,5 +1,4 @@
-Chapter 5: Incorporating Affirmations into Daily Life: Morning Rituals
-======================================================================
+# Morning Rituals
 
 Starting the day with affirmations can set a positive tone for the rest of the day. In this chapter, we will explore different morning rituals to incorporate affirmations into your daily routine.
 

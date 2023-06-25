@@ -1,5 +1,4 @@
-Chapter 5: Incorporating Affirmations into Daily Life: Bedtime Rituals
-======================================================================
+# Bedtime Rituals
 
 In this chapter, we will explore how to incorporate affirmations into your bedtime rituals. By using affirmations before bed, you can promote better sleep and set a positive tone for the next day.
 

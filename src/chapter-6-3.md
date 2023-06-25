@@ -1,5 +1,4 @@
-Chapter 6: Enhancing Affirmations with Visualization and Meditation: Mindfulness Practices
-==========================================================================================
+# Mindfulness Practices
 
 Mindfulness practices are another effective way to enhance the effectiveness of affirmations. In this chapter, we will explore how to use mindfulness practices to enhance your affirmation practice.
 

@@ -1,5 +1,4 @@
-Chapter 6: Enhancing Affirmations with Visualization and Meditation: Visualization Techniques
-=============================================================================================
+# Visualization Techniques
 
 Visualization is a powerful technique that can enhance the effectiveness of affirmations. In this chapter, we will explore how to use visualization techniques to enhance your affirmation practice.
 

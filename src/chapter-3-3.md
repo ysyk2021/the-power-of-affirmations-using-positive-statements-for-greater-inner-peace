@@ -1,5 +1,4 @@
-Chapter 3: Creating Effective Affirmations: Writing and Using Affirmations Effectively
-======================================================================================
+# Writing and Using Affirmations Effectively
 
 Writing and using affirmations effectively can have a powerful impact on our mindset and well-being. In this chapter, we will explore tips for creating effective affirmations and using them to cultivate greater inner peace.
 

@@ -1,5 +1,4 @@
-Chapter 4: Applying Affirmations for Inner Peace: Overcoming Stress and Anxiety
-===============================================================================
+# Overcoming Stress and Anxiety
 
 Stress and anxiety are common experiences in today's fast-paced world. However, affirmations can be a powerful tool for managing these feelings and achieving greater inner peace. In this chapter, we will explore how to use affirmations to overcome stress and anxiety.
 

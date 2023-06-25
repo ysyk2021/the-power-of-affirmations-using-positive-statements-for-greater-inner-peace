@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Obstacles to Affirmation Practice: Common Obstacles to Affirmation Practice
-=================================================================================================
+# Common Obstacles to Affirmation Practice
 
 While the practice of affirmations can be transformative, it is not always easy. In this chapter, we will explore common obstacles to affirmation practice and strategies for overcoming them.
 

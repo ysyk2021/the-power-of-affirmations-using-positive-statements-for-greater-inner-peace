@@ -1,5 +1,4 @@
-Chapter 2: Understanding Affirmations: Definition of Affirmations
-=================================================================
+# Definition of Affirmations
 
 Affirmations are positive statements that can be used to shift our thoughts and beliefs towards positivity. In this chapter, we will explore the definition of affirmations and how they can be used to cultivate greater inner peace.
 

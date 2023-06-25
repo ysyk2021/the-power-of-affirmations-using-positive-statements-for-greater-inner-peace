@@ -1,5 +1,4 @@
-Chapter 9: Conclusion: Recap of Key Points
-==========================================
+# Recap of Key Points
 
 In this book, we have explored the power of affirmations as a tool for cultivating greater inner peace and well-being. We have discussed how affirmations work, how to create effective affirmations, and how to incorporate them into our daily lives.
 

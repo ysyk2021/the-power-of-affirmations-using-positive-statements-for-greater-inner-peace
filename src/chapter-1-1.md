@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Importance of Affirmations in Achieving Inner Peace
-============================================================================
+# Importance of Affirmations in Achieving Inner Peace
 
 Inner peace is a state of calmness and tranquility that can be difficult to achieve in today's fast-paced world. However, affirmations are a powerful tool that can help us cultivate greater inner peace and well-being.
 

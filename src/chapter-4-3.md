@@ -1,5 +1,4 @@
-Chapter 4: Applying Affirmations for Inner Peace: Cultivating Gratitude and Joy
-===============================================================================
+# Cultivating Gratitude and Joy
 
 One of the most powerful ways to use affirmations for inner peace is by cultivating gratitude and joy. When we focus on the positive aspects of our lives, we shift our thoughts and emotions from negativity to positivity. This can have a profound impact on our overall sense of well-being and inner peace.
 

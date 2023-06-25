@@ -1,5 +1,4 @@
-Chapter 2: Understanding Affirmations: Types of Affirmations
-============================================================
+# Types of Affirmations
 
 Affirmations are positive statements that can be used to shift our thoughts and beliefs towards positivity and well-being. In this chapter, we will explore different types of affirmations and how they can be used to cultivate greater inner peace.
 

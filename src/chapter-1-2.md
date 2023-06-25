@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Overview of the Book
-=============================================
+# Overview of the Book
 
 Affirmations are a powerful tool for cultivating greater inner peace and well-being. In this book, we will explore the transformative power of affirmations and how they can be used to shift our mindset towards positivity.
 

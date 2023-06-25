@@ -1,5 +1,4 @@
-Chapter 4: Applying Affirmations for Inner Peace: Building Self-Confidence
-==========================================================================
+# Building Self-Confidence
 
 Self-confidence is a crucial component of inner peace. When we believe in ourselves and our abilities, we are less likely to be affected by external circumstances or the opinions of others. Affirmations can be a powerful tool for building self-confidence and increasing our overall sense of well-being.
 

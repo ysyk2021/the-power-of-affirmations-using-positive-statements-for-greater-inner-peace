@@ -1,5 +1,4 @@
-Chapter 2: Understanding Affirmations: How Affirmations Work
-============================================================
+# How Affirmations Work
 
 Affirmations are a powerful tool for shifting our mindset towards positivity and well-being. In this chapter, we will explore how affirmations work and the science behind their effectiveness.
 

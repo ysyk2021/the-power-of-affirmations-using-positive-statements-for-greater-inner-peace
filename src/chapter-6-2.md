@@ -1,5 +1,4 @@
-Chapter 6: Enhancing Affirmations with Visualization and Meditation: Guided Meditations
-=======================================================================================
+# Guided Meditations
 
 Guided meditations are a powerful way to enhance the effectiveness of affirmations. In this chapter, we will explore how to use guided meditations to enhance your affirmation practice.
 

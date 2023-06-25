@@ -1,5 +1,4 @@
-Chapter 3: Creating Effective Affirmations: Identifying Negative Self-Talk
-==========================================================================
+# Identifying Negative Self-Talk
 
 Negative self-talk can have a significant impact on our mindset and well-being. However, by identifying negative self-talk, we can challenge these beliefs and transform them into positive affirmations. In this chapter, we will explore how to identify negative self-talk.
 

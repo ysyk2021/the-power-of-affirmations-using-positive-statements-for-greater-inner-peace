@@ -1,5 +1,4 @@
-Chapter 3: Creating Effective Affirmations: Turning Negative Self-Talk into Positive Affirmations
-=================================================================================================
+# Turning Negative Self-Talk into Positive Affirmations
 
 Negative self-talk can be harmful to our mental and emotional well-being. However, by creating effective affirmations, we can turn negative thoughts and beliefs into positive statements that promote inner peace and well-being. In this chapter, we will explore how to create effective affirmations.
 
