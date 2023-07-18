@@ -8,5 +8,4 @@ Affirmations are positive statements that we repeat to ourselves in order to cre
 
 Whether you are looking to reduce stress and anxiety, increase self-confidence, or cultivate greater happiness and inner peace, "The Power of Affirmations" can help you achieve your goals. With its inspiring message and practical guidance, this book is a must-read for anyone looking to enhance their personal growth journey.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
