@@ -1,4 +1,4 @@
-Chapter 7: Building Self-Confidence
+Building Self-Confidence
 ===================================
 
 In this chapter, we will explore the transformative power of affirmations in building self-confidence. Self-confidence is a crucial attribute that empowers us to believe in our abilities, take on new challenges, and pursue our goals with determination. Through the practice of positive affirmations, we can rewire our subconscious mind, overcome self-doubt, and cultivate a deep sense of self-assurance and belief in ourselves.

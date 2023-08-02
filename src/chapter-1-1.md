@@ -1,4 +1,4 @@
-Chapter 3: Importance of Affirmations in Achieving Inner Peace
+Importance of Affirmations in Achieving Inner Peace
 ==============================================================
 
 In this chapter, we will delve into the significance of affirmations in our journey towards attaining inner peace. Affirmations, when used consciously and consistently, have the power to transform our thoughts, beliefs, and emotions, leading to a state of profound tranquility and harmony within ourselves.

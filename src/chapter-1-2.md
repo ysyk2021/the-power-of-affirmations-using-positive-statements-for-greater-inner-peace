@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book
+Overview of the Book
 ===============================
 
 Welcome to "The Power of Affirmations: Using Positive Statements for Greater Inner Peace." In this book, we will explore the profound impact that affirmations can have on our lives and how they can lead us to a state of inner peace and empowerment.

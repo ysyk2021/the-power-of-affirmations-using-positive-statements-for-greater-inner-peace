@@ -1,4 +1,4 @@
-Chapter 6: Cultivating Gratitude and Joy
+Cultivating Gratitude and Joy
 ========================================
 
 In this chapter, we will explore the transformative power of cultivating gratitude and joy through the practice of affirmations. By incorporating positive statements that focus on gratitude and joy into our daily lives, we can enhance our overall well-being, attract positive experiences, and cultivate a deeper sense of inner peace.

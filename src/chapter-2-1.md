@@ -1,4 +1,4 @@
-Chapter 3: Definition of Affirmations
+Definition of Affirmations
 =====================================
 
 In this chapter, we will explore the concept of affirmations and their significance in promoting inner peace. Affirmations are powerful tools that allow us to consciously transform our thoughts, beliefs, and emotions. By using positive statements, we can reprogram our subconscious mind, cultivate self-compassion, and create a deep sense of inner peace.

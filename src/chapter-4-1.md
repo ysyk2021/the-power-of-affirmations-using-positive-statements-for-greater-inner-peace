@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Stress and Anxiety
+Overcoming Stress and Anxiety
 ========================================
 
 In this chapter, we will explore how the power of positive affirmations can help us overcome stress and anxiety, promoting greater inner peace and well-being. Through the intentional use of affirmations, we can reframe our thoughts, cultivate a sense of calm, and navigate life's challenges with resilience and serenity.

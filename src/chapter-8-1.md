@@ -1,4 +1,4 @@
-Chapter 8: Real-Life Examples of Individuals Who Have Successfully Used Affirmations for Greater Inner Peace
+Real-Life Examples of Individuals Who Have Successfully Used Affirmations for Greater Inner Peace
 ============================================================================================================
 
 In this chapter, we will explore real-life examples of individuals who have embraced affirmations and experienced profound transformations in their lives. These individuals serve as inspiration and demonstrate the power of positive statements in cultivating greater inner peace.

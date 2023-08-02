@@ -1,4 +1,4 @@
-Chapter 3: How Affirmations Work
+How Affirmations Work
 ================================
 
 In this chapter, we will delve into the mechanics of how affirmations work and their impact on our minds and well-being. Understanding the underlying processes of affirmations can provide us with valuable insights into their effectiveness and empower us to harness their full potential.

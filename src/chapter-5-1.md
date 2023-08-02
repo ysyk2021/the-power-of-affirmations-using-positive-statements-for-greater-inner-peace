@@ -1,4 +1,4 @@
-Chapter 8: Morning Rituals
+Morning Rituals
 ==========================
 
 In this chapter, we will explore the significance of morning rituals in harnessing the power of affirmations for greater inner peace and well-being. By starting the day with intention and positivity, we can set the tone for a fulfilling and productive day ahead.

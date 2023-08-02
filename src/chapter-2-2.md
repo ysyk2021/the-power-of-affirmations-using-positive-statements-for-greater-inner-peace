@@ -1,4 +1,4 @@
-Chapter 4: Types of Affirmations
+Types of Affirmations
 ================================
 
 In this chapter, we will explore various types of affirmations that can be used to cultivate greater inner peace and well-being. Understanding the different categories of affirmations allows us to tailor our practice to specific needs and goals, creating a more personalized and effective approach.

@@ -1,4 +1,4 @@
-Chapter 4: Turning Negative Self-Talk into Positive Affirmations
+Turning Negative Self-Talk into Positive Affirmations
 ================================================================
 
 In this chapter, we will explore the transformative process of turning negative self-talk into positive affirmations to cultivate greater inner peace and self-empowerment.
