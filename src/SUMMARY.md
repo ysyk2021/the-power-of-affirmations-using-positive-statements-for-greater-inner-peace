@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of Affirmations in Achieving Inner Peace](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Chapter 2: Understanding Affirmations](chapter-2.md)
   - [Definition of Affirmations](chapter-2-1.md)
   - [Types of Affirmations](chapter-2-2.md)
