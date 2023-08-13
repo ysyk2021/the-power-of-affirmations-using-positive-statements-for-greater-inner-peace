@@ -26,6 +26,5 @@
   - [Common Obstacles to Affirmation Practice](chapter-7-1.md)
   - [Strategies for Overcoming Obstacles](chapter-7-2.md)
 - [Chapter 8: Case Studies of Successful Affirmation Practice](chapter-8.md)
-  - [Real-life Examples of Individuals who have Successfully Used Affirmations for Greater Inner Peace](chapter-8-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
