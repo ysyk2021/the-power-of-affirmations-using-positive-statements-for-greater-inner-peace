@@ -1,5 +1,3 @@
-Chapter 4: Applying Affirmations for Inner Peace
-================================================
 
 Inner peace is a state of calmness and contentment that can be cultivated through affirmations. In this chapter, we will explore different ways to apply affirmations for inner peace.
 

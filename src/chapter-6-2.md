@@ -1,5 +1,3 @@
-Guided Meditations
-=============================
 
 In this chapter, we will explore the practice of guided meditations as a powerful tool for harnessing the transformative power of positive affirmations. Guided meditations offer a structured approach to incorporating affirmations into our daily lives, helping us cultivate inner peace, harmony, and well-being.
 

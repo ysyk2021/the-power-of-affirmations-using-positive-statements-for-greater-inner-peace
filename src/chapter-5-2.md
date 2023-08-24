@@ -1,5 +1,3 @@
-Bedtime Rituals
-==========================
 
 In this chapter, we will explore the importance of bedtime rituals in harnessing the power of affirmations for greater inner peace and well-being. Establishing a calming routine before sleep allows us to release the day's stress, cultivate gratitude, and set positive intentions for a restful night's sleep.
 

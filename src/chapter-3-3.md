@@ -1,5 +1,3 @@
-Writing and Using Affirmations Effectively
-=====================================================
 
 In this chapter, we will explore how to write and use affirmations effectively to harness their transformative power in achieving greater inner peace.
 

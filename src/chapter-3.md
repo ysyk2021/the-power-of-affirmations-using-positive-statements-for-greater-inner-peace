@@ -1,5 +1,3 @@
-Chapter 3: Creating Effective Affirmations
-==========================================
 
 Creating effective affirmations can have a powerful impact on our mindset and well-being. In this chapter, we will explore different strategies for creating effective affirmations.
 

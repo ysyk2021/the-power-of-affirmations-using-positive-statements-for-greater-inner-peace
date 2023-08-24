@@ -1,4 +1,3 @@
-# Strategies for Overcoming Obstacles
 
 While affirmations can be a powerful tool for cultivating greater inner peace and well-being, it can sometimes be challenging to maintain a consistent affirmation practice. In this chapter, we will explore some common obstacles to affirmation practice and provide strategies for overcoming them.
 

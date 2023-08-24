@@ -1,5 +1,3 @@
-Chapter 6: Enhancing Affirmations with Visualization and Meditation
-===================================================================
 
 Visualization and meditation are powerful techniques that can enhance the effectiveness of affirmations. In this chapter, we will explore how to use visualization and meditation to enhance your affirmation practice.
 

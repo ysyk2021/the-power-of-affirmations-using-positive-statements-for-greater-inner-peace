@@ -1,5 +1,3 @@
-Chapter 5: Incorporating Affirmations into Daily Life
-=====================================================
 
 To experience the full benefits of affirmations, it's important to incorporate them into our daily routine. In this chapter, we will explore different ways to integrate affirmations into our daily life.
 

@@ -1,5 +1,3 @@
-Mindfulness Practices
-================================
 
 In this chapter, we will explore the profound impact of mindfulness practices on our well-being and how they can enhance the power of affirmations. Mindfulness cultivates a deep sense of presence, allowing us to fully experience each moment and embrace the positive affirmations that promote greater inner peace and happiness.
 

@@ -1,5 +1,3 @@
-Common Obstacles to Affirmation Practice
-===================================================
 
 In this chapter, we will explore common obstacles that may arise during our affirmation practice. By understanding these challenges and learning strategies to overcome them, we can maintain a consistent and effective practice, ultimately experiencing greater inner peace and well-being.
 

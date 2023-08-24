@@ -1,5 +1,3 @@
-Identifying Negative Self-Talk
-=========================================
 
 Negative self-talk is a common habit that can hinder our growth and inner peace. In this chapter, we will explore the process of identifying negative self-talk patterns and becoming aware of their impact on our well-being.
 

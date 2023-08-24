@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Affirmation Practice
-=======================================================
 
 In this chapter, we will explore common obstacles to affirmation practice and provide strategies for overcoming them. By understanding and addressing these obstacles, you can make progress in your affirmation practice and cultivate greater inner peace and well-being.
 

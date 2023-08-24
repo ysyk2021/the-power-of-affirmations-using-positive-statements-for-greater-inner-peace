@@ -1,5 +1,3 @@
-Using Affirmations Throughout the Day
-================================================
 
 In this chapter, we will explore various techniques and strategies for incorporating affirmations into our daily lives. By integrating affirmations into our routine and consciously using them throughout the day, we can amplify their impact and experience greater inner peace and well-being.
 

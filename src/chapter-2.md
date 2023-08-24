@@ -1,5 +1,3 @@
-Chapter 2: Understanding Affirmations
-=====================================
 
 Affirmations are a powerful tool for cultivating greater inner peace and well-being. In this chapter, we will explore the different types of affirmations, how they work, and how to use them effectively.
 
