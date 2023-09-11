@@ -1,3 +1,6 @@
+# The Power of Affirmations: Using Positive Statements for Greater Inner Peace
+
+Book Link: [https://zhengpublishing.com/the-power-of-affirmations-using-positive-statements-for-greater-inner-peace/](https://zhengpublishing.com/the-power-of-affirmations-using-positive-statements-for-greater-inner-peace/)
 
 "The Power of Affirmations: Using Positive Statements for Greater Inner Peace" is a transformative guide to harnessing the power of positive self-talk. In this book, readers will learn how to use affirmations to cultivate greater inner peace, improve mental health and well-being, and overcome limiting beliefs.
 
